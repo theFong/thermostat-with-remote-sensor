@@ -1,0 +1,1 @@
+http://www.alecfong.com/thermostat-with-remote-sensor/
